@@ -1,1 +1,0 @@
-# FootPicker.-Android-App-
